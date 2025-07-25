@@ -20,3 +20,5 @@ Kali Linuxy to swatki i właścicele portali randkowych i ślubów na siłę na 
 Kali z zawodu to rolnik i ogrodnik na kobajnie a Bezos to kierowca i biznesmen z hali produkcyjnej. To rolnicy są ci grosi. 
 Tak samo ci ze starostwa blokują niekturym prawo jazdy i wydanie prawa jazdy i robią problemy że jak kupią Tesle to to ją zezłomują bo nie kupili Toyoty Yaris polecanej przez Samsung i Pogotowie 112. 
 Starostwo robi też pogróżki że chce się żyć na bogato jak a choj a nie jak żołnież zawodowoy czy harcerz bieda. Straszą policją i pogotowiem samsung też szczeka że jak nie kupi się toyoty yaris czy urzywanego auta zgłoszą sprawę na Policje lub do księdza wojewody o wydalenie obietnicy ślubu na siłe.  
+Politycy ukralid pieniedze i kali linuxy. 
+Tak samo jest z tym jak nie chce się toyoty yaris to chcą dać Tarpana od złomiarza. Jak ktoś słyszy w głowie płaczą bezosy to to płacze kali linux ubrany za bezosy że  ktoś nie chce przekrentu. Gównie młodym robi policja przekrenty jak z lotto i kradzieżą lotto a za miast lotto dają żonę na 30 lat razem i rozwód i do grobu idzie żona czy na gediatrie afery harrp. 
