@@ -12,3 +12,4 @@ W szwecji takie same afery tam zarabiali 100 000 zł na miesiąc a teraz mają 5
 Alexa Cheng też karze porzyczać pieniedze i oszczędzać i wytykać oszczędzacze do gniazdka.  To NGO zrobiło żo każdy sra pod siebie i nie ma za co zyć i jest cały czas na etacie sporzątaczką.  
 Te afery do kibla to tkaczyk do systemu i kali linuxy afery radio harrp włam do DNA i spuszczenie się w majatki. Inne afery to MGO fundacje. 
 Lewe bezosy to tkaczyk i kali lunuxy. 
+Co do Bezosa to Bezos jest nie winy bo przez kaliego co ubiera się za kobiety i mężczyn jak TX po prochach i narkotykach wsypuje Bezosa do więzienia i robi mu przekrent i nazywa się siebie anioł bezeso lewy Kali Linux pali pety za Bezosa on tak z tymi łobuzami już wsypał do paki prządane osoby lub zabrał im mjątki z wypłaty na rzecz NGO NWO fundacji.  
