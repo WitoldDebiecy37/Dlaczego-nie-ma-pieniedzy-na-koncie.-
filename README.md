@@ -17,3 +17,4 @@ Co do afer aut urzywanych to auta urzywane to karze kupować ci od Kieliego linu
 Te łobuzy sypią lexidofen do żywności gównie do napoji ze sklepu. 
 Oni też są od afer śluby na siłę na pokaz i do kosza voisy do zmieszanych śmieci. To NGO NWO PRL.   
 Kali Linuxy to swatki i właścicele portali randkowych i ślubów na siłę na 50 lat razem i do grobu po 55 ślub ABW PRL. A Bezos to sprzedawca voisów humanodidalnych i wody. Kali to gangster i śluby ala alexa czeng w kracie płaszczu.  
+Kali z zawodu to rolnik i ogrodnik na kobajnie a Bezos to kierowca i biznesmen z hali produkcyjnej. To rolnicy są ci grosi. 
