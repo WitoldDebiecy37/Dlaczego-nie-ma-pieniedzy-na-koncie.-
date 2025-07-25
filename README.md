@@ -5,3 +5,4 @@ Ludziom karzą oszczędzać gołębie i takie szmaty jak Jurek Magdziński czy K
 Kai Cheng mieszka w Pradze i Ostrawie, Jurek Magdziński w Esen w kamienicy. Nie wiem gdzie mieszka Tkaczyk. To oni karzą oszczędzać piniedze i karzą obesranymi majtkami na radio. 
 Oni to ta grupa niepełnosprawnych co dorosłym płacą kieszonkowe jak małym dzieciom. 
 Żyją z naszej kieszeni. 
+To afery wośp zabrało pieniedze nasze na ich życie. 
