@@ -6,3 +6,4 @@ Kai Cheng mieszka w Pradze i Ostrawie, Jurek Magdziński w Esen w kamienicy. Nie
 Oni to ta grupa niepełnosprawnych co dorosłym płacą kieszonkowe jak małym dzieciom. 
 Żyją z naszej kieszeni. 
 To afery wośp zabrało pieniedze nasze na ich życie. 
+Piniedzy drukują na styk. 
