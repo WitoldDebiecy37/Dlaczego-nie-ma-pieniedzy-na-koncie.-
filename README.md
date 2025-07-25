@@ -13,3 +13,4 @@ Alexa Cheng też karze porzyczać pieniedze i oszczędzać i wytykać oszczędza
 Te afery do kibla to tkaczyk do systemu i kali linuxy afery radio harrp włam do DNA i spuszczenie się w majatki. Inne afery to MGO fundacje. 
 Lewe bezosy to tkaczyk i kali lunuxy. 
 Co do Bezosa to Bezos jest nie winy bo przez kaliego co ubiera się za kobiety i mężczyn jak TX po prochach i narkotykach wsypuje Bezosa do więzienia i robi mu przekrent i nazywa się siebie anioł bezeso lewy Kali Linux pali pety za Bezosa on tak z tymi łobuzami już wsypał do paki prządane osoby lub zabrał im mjątki z wypłaty na rzecz NGO NWO fundacji.  
+Co do afer aut urzywanych to auta urzywane to karze kupować ci od Kieliego linuxa za miast nowych z kołpakami na bęzynę.  To Kali linux ten niepełnosprawny robi przekrenty i stare jest w przyszłości a nowe i dzie do kosza przez afery leśniczych i ekologów z Green pace w to są też zamieszani harcerze.  Dlatego nie ma pieniedzy na koncie. 
