@@ -7,3 +7,4 @@ Oni to ta grupa niepełnosprawnych co dorosłym płacą kieszonkowe jak małym d
 Żyją z naszej kieszeni. 
 To afery wośp zabrało pieniedze nasze na ich życie. 
 Piniedzy drukują na styk. 
+Afery wośp prowadzą niepełnosprawni umysłowo co nie umieją liczyć piniedzy i banki otworzyli dla rydzyka i dają z wypłaty kieszonkowe do kieszonki. 
