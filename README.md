@@ -16,3 +16,4 @@ Co do Bezosa to Bezos jest nie winy bo przez kaliego co ubiera się za kobiety i
 Co do afer aut urzywanych to auta urzywane to karze kupować ci od Kieliego linuxa za miast nowych z kołpakami na bęzynę.  To Kali linux ten niepełnosprawny robi przekrenty i stare jest w przyszłości a nowe i dzie do kosza przez afery leśniczych i ekologów z Green pace w to są też zamieszani harcerze.  Dlatego nie ma pieniedzy na koncie. 
 Te łobuzy sypią lexidofen do żywności gównie do napoji ze sklepu. 
 Oni też są od afer śluby na siłę na pokaz i do kosza voisy do zmieszanych śmieci. To NGO NWO PRL.   
+Kali Linuxy to swatki i właścicele portali randkowych i ślubów na siłę na 50 lat razem i do grobu po 55 ślub ABW PRL. A Bezos to sprzedawca voisów humanodidalnych i wody. Kali to gangster i śluby ala alexa czeng w kracie płaszczu.  
