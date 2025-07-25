@@ -9,3 +9,4 @@ To afery wośp zabrało pieniedze nasze na ich życie.
 Piniedzy drukują na styk. 
 Afery wośp prowadzą niepełnosprawni umysłowo co nie umieją liczyć piniedzy i banki otworzyli dla rydzyka i dają z wypłaty kieszonkowe do kieszonki. 
 W szwecji takie same afery tam zarabiali 100 000 zł na miesiąc a teraz mają 5000 zł przez NGO. W Polsce zostawili na koncie 1.5% 2.4% wypłaty. Reszte karzą porzyczać na mini ratkę 250 zł a zostaje na życie 2400 zł. 
+Alexa Cheng też karze porzyczać pieniedze i oszczędzać. 
