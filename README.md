@@ -11,3 +11,4 @@ Afery wośp prowadzą niepełnosprawni umysłowo co nie umieją liczyć piniedzy
 W szwecji takie same afery tam zarabiali 100 000 zł na miesiąc a teraz mają 5000 zł przez NGO. W Polsce zostawili na koncie 1.5% 2.4% wypłaty. Reszte karzą porzyczać na mini ratkę 250 zł a zostaje na życie 2400 zł. 
 Alexa Cheng też karze porzyczać pieniedze i oszczędzać i wytykać oszczędzacze do gniazdka.  To NGO zrobiło żo każdy sra pod siebie i nie ma za co zyć i jest cały czas na etacie sporzątaczką.  
 Te afery do kibla to tkaczyk do systemu i kali linuxy afery radio harrp włam do DNA i spuszczenie się w majatki. Inne afery to MGO fundacje. 
+Lewe bezosy to tkaczyk i kali lunuxy. 
