@@ -23,3 +23,4 @@ Starostwo robi też pogróżki że chce się żyć na bogato jak a choj a nie ja
 Politycy ukralid pieniedze i kali linuxy. 
 Tak samo jest z tym jak nie chce się toyoty yaris to chcą dać Tarpana od złomiarza. Jak ktoś słyszy w głowie płaczą bezosy to to płacze kali linux ubrany za bezosy że  ktoś nie chce przekrentu. Gównie młodym robi policja przekrenty jak z lotto i kradzieżą lotto a za miast lotto dają żonę na 30 lat razem i rozwód i do grobu idzie żona czy na gediatrie afery harrp. 
 Najlepiej zrobić im program post Odyn białe zimno i nic nie kupować i pogrążyć świat w kryzysie finasowym i zabrać pieniedze dla siebie. Pić wodę ze 20 lat i czekać na koniec firm. 
+Ja podziękuje niepełnosprawnym za oferty ślubu ze mną bardzo dziękuje ale nie. 
