@@ -33,3 +33,4 @@ Za miast brać z NBP z karzaczka lepiej zianstować w Voisy i drukarki kwantowe 
 Te 20 zł raz w tygodniu lub na miesąc z sieci sklepów jak ktoś ma sklepy czy 1000 zł z firmy jako pracownik sklepu to wynagrodzenie post mafi. Oni tłumaczą się tesketem jakiegoś dziecka płacze lewy mocny procesor jak che się więcej niż daje post mafia sportu. 
 To czerwony daje na 1 100 ml wódki i paczkę fajek raz ma miesiąc. To czas odwołać rząd. 
 Czerwonym zróbcie brek exit temu rządowi. 
+To niech banki drukarki kwantowe radio wyprodukują z zakupami i pieniedzmi i pomyślą o dematerlizatorze materi. 
