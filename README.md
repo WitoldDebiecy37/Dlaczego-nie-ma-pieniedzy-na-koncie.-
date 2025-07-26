@@ -25,3 +25,4 @@ Tak samo jest z tym jak nie chce się toyoty yaris to chcą dać Tarpana od zło
 Najlepiej zrobić im program post Odyn białe zimno i nic nie kupować i pogrążyć świat w kryzysie finasowym i zabrać pieniedze dla siebie. Pić wodę ze 20 lat i czekać na koniec firm. 
 Ja podziękuje niepełnosprawnym za oferty ślubu ze mną bardzo dziękuje ale nie. 
 To co piszą portale randkowe w opisach jaki ma być przyszły parner że ma mieć tyle pieniedzy co Glazgoł czy NYC to dlatego dziękuje i wole oszczędzać na przyszłość niż się żenić i wydawać na ślub z prymitywną kobietą na koniec będziemy zbierać złom.  
+Nie kupowć nic zrobić im długi tym komuchom co mówią że ktoś kradnie bo nie chce czerwieni. Niech komuchy i socjaluchy srają pod siebie z biedy. 
