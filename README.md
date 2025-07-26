@@ -38,3 +38,4 @@ Czas zwolnić z rynku spółkę Dax com i Kristin Bell oni robią kryzysy na ryn
 Czas porzegnać PRL i reklamy lekarzyków czas działać i czas pozbyć się biedy i programu post mafi post odyn. 
 Ta bieda to też lekarze i profesorowie od wyrzucania do kosza i Marvel. 
 Trzymanie w magazynie towaru i go nie sprzedawanie i lokowanie i podwyszanie ceny to działanie post mafi i sportu. Wolna energia i vois AI z mocą telkinezy może uwolnić ceny i każdemu dać dużo. 
+AI co daje da dużo towaru Cerffur. 
