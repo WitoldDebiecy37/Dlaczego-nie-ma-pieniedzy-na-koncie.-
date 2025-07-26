@@ -36,3 +36,4 @@ Czerwonym zróbcie brek exit temu rządowi.
 To niech banki drukarki kwantowe radio wyprodukują z zakupami i pieniedzmi i pomyślą o dematerlizatorze materi. 
 Czas zwolnić z rynku spółkę Dax com i Kristin Bell oni robią kryzysy na rynku to assassyni finasowi i szara strefa gdzie jest się wiecznie mużynem.  Czas porzegnać free dom cry i slavik cry. 
 Czas porzegnać PRL i reklamy lekarzyków czas działać i czas pozbyć się biedy i programu post mafi post odyn. 
+Ta bieda to też lekarze i profesorowie od wyrzucania do kosza i Marvel. 
